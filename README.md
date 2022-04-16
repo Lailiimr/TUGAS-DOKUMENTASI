@@ -1,2 +1,2 @@
 # TUGAS-DOKUMENTASI
-Hasil Tugas Dokumentasi (Individu, Kelompok dan Project Mini)
+Hasil Tugas Dokumentasi, Free Sharing, Kelompok Gabungan Project Mini
