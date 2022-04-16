@@ -1,2 +1,2 @@
 # TUGAS-DOKUMENTASI
-Hasil Tugas Dokumentasi (Individu dan Kelompok)
+Hasil Tugas Dokumentasi (Individu, Kelompok dan Project Mini)
